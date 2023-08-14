@@ -1,4 +1,1 @@
-- 👋 Hi, I’m @adityaavard
-- 👀 I’m interested in minecraft
-- 🌱 I’m currently learning git
-- 💞️ I’m looking to collaborate on minecraft hack clients
+im bad at everything DX
